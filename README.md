@@ -1,1 +1,0 @@
-# climate-change-hockey-stick-revisitation
